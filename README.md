@@ -1,5 +1,5 @@
 ## Hey, welcome to my profile!
-My name is Trey, I go by "Dodge Viper" on Discord, I'm a Trial Moderator for Contractors Showdown: Exfilzone (my favorite game) and here are my favorite quotes:
+My name is Trey, I go by "Dodge Viper" on Discord, and here are my favorite quotes:
 
 ---
 
